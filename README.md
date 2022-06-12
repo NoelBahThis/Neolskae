@@ -1,5 +1,6 @@
 - 👋 Hi, I’m @Neolskae, my Full name is Lee Noel Lian, I am from Sabah, Malaysia.  🇲🇾
 - ❤️ Im interested in Finance, Accounting, Programming, Business and etc.
+- 📖 I am studying in Tunku Abdul Rahman University College, pursuing Bachelor Degree in Software System Development
 
 
 <!---
