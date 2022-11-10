@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Neolskae, my Full name is Lee Noel Lian, I am from Sabah, Malaysia.  🇲🇾
+- 👋 Hi, I’m @NoelBahThis, my Full name is Lee Noel Lian, I am from Sabah, Malaysia.  🇲🇾
 - ❤️ Im interested in Finance, Accounting, Programming, Business, Forex Trading, Stock Investing, Political Science and etc.
 - 📖 I am studying in Tunku Abdul Rahman University College, pursuing Bachelor Degree in Software System Development
 
